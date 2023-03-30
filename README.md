@@ -2,4 +2,4 @@
 
 git. SSH
 
-!["udshfus](https://tehnoteca.ru/img/1517/1516335/halmar_bruce_1.jpg)
+!["udshfus](https://plastmebel.ru/upload/iblock/e07/dq6fhrk3znjnj5y1yn8qufvk2rr0azdx.jpg)
